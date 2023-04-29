@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @walper-god
-- 👀 I’m interested in fast and furios
+- 👀 I’m interested in fast and furious
 - 🌱 I’m currently learning cods
 - 💞️ I’m looking to collaborate on in making wallpapers
 - 📫 How to reach me by e-mail
